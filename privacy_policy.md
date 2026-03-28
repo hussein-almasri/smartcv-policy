@@ -50,4 +50,4 @@ We may update this Privacy Policy from time to time. Updates will be posted on t
 
 If you have any questions about this Privacy Policy, please contact:
 
-Email: your-email@example.com
+Email: hasoon04h@gmail.com
